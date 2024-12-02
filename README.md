@@ -1,3 +1,3 @@
 # 494292-LanaFitriaDewani-ResponsiJuniorProject
 
-Project ada di branch master
+![image](https://github.com/user-attachments/assets/3619b6ef-be78-4f35-97c7-60d9ecc39970) 
